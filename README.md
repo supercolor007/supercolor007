@@ -2,5 +2,5 @@
 
 #### Hello 👏
 > I'm SuperColor  
-> Java  
-> Football  
+> java coder💻   
+> football player⚽️  
